@@ -6,9 +6,9 @@
 #### 6
 #### 7 AD all the way
 #### 8
-#### 9 Github is really good!
+#### 9 GitHub is awesome
 #### 10
-#### 11
+#### 11 Github is lame 
 #### 12
 #### 13
 #### 14
